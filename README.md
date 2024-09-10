@@ -1,4 +1,4 @@
-Hi! Saya penguasa konstantinopel tapi gak ada muhammad nya, atau biasanya dipanggil Iyeppp.
+Mie ayam enjoyer
 
 
 <!---
